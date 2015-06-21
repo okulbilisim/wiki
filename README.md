@@ -1,0 +1,2 @@
+# wiki
+Bilgimizin sadakası
